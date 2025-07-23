@@ -1,2 +1,2 @@
 # Sbn---website
-Официален сайт на SNN25 Solar Construction
+Официален сайт на SBN25 Solar Construction
